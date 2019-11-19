@@ -1,1 +1,1 @@
-# chaos
+# chaos is my favorite religion
